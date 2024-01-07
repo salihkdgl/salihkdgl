@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @salihkdgl
+- 👀 I’m interested in cyber security and web design.
+- 🌱 I’m currently learning web design.
+- 💞️ I’m looking to collaborate on cyber security and web design.
+- 📫 You can reach me via my e-mail account.
+- e-mail: kadioglusalih3@gmail.com
